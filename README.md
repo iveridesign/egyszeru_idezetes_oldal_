@@ -1,0 +1,1 @@
+egyszeru_idezetes_oldal_
